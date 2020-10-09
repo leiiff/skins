@@ -37,3 +37,6 @@
 
 # [vaxei edit](http://www.mediafire.com/file/81k8y27hucscprd/_leif.osk/file)
 ![](https://osu.ppy.sh/ss/15643197/9c71)
+
+# [axarious edit](http://www.mediafire.com/file/yqinz9akubsike3/axarious_edit.osk/file)
+![](https://osu.ppy.sh/ss/15651568/0389)
