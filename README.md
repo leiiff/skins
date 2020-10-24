@@ -40,3 +40,6 @@
 
 # [axarious edit](http://www.mediafire.com/file/yqinz9akubsike3/axarious_edit.osk/file)
 ![](https://osu.ppy.sh/ss/15651568/0389)
+
+# [milkteaism edit](http://www.mediafire.com/file/egn8lhkazh208ho/Milkteaism.osk/file)
+![](https://osu.ppy.sh/ss/15715981/cdd5)
